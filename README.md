@@ -4,6 +4,14 @@
 ## மொழி
 - [Sorkuvai](https://www.youtube.com/channel/UCZrzAxTvgY_HD6Fyx_ZZQDA)
 
+## ஒலிநூல்கள்
+- [Olipedia](https://www.youtube.com/channel/UCG0XGCZ1XroIWdBXvtqeI2g)
+- [Aaya Kalaigal AK 64](https://www.youtube.com/channel/UCbvSMVFASr2H9q_nnvKJuGA)
+- [Poornima Karthic](https://www.youtube.com/channel/UCD7DvC-w1cNNalle6F1HgtA)
+- [SR Tamil Audio Books](https://www.youtube.com/channel/UClb0jSVMsZuQioOgw1VtP6Q)
+- [Positive Vision Media](https://www.youtube.com/channel/UCV0QuObHHhp8v6j3VguvFuA)
+- [Diary Pages](https://www.youtube.com/channel/UCmQMbNmfVklLmngmrZ1yf_A)
+
 ## உணவு
 - [கற்றது கையளவு](https://www.youtube.com/channel/UC_kTvrP6zJ0niG_Psi1UxYQ)
 - [Nagu's Nalabagam](https://www.youtube.com/channel/UC9dPXSJ5g6p7ugFdlUm-HRQ)
